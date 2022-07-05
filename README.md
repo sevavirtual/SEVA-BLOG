@@ -1,1 +1,68 @@
-# SEVA-BLOG
+# 6 TECHNIQUES TO CREATE A WINNING FREELANCER PROFILE
+What is Freelancing? 
+Freelancing is a contract-based career in which the individual uses his talents and expertise to deliver services to a variety of clients rather than being hired by an organization. 
+
+
+A self-employed individual who earns money by delivering services to a variety of clients is what we call a freelancer, also known as a freelance worker. These services are related to the person's expertise and are not always supplied to corporations.
+
+
+Freelancers either utilize third-party platforms like Fiverr, 99designs, and others to gain work, or they leverage their network to get additional work and directly supply services to their clients.
+
+
+But before you are able to start working freelance jobs, it is important to create a freelancer profile.
+
+
+Consider using these techniques to help you construct a great freelancer profile that highlights your experience and skills.
+
+
+6 TECHNIQUES TO CREATE A WINNING FREELANCER PROFILE
+
+#1 - Choose a Professional Profile Photo
+
+Your profile photo is an important aspect of your Freelancing presence. Clients want to feel they can trust a freelancer before they hire them for a job, thus your profile photo is the first chance to show them that you are kind, approachable, and trustworthy - all of which are important in persuading them to connect with you. It should be clean, and simple, and the focus of the image should be your face.
+
+
+
+#2 - Create And Optimize Freelancing Profiles
+
+These freelancing profiles include professional LinkedIn, Instagram, Facebook Page, and Twitter accounts. This helps to develop your internet presence and legitimacy in the freelance sector. You may also construct a website to grab the attention of clients and make your application stand out.
+
+
+
+#3 - Prepare Your Proposal Cover Letter
+
+Your cover letter is usually your proposal's first opportunity to link your services to the client's objective. It is a one-page document that is designed to market your freelance services to a potential customer. Its purpose is to illustrate your specialized skills and how they might assist your employer and its company.
+
+ 
+
+An outstanding proposal cover letter includes:
+
+Greeting: Introduce yourself or your company and what you do.
+
+Summary: Describe your freelancing services at a high level. Be sure to connect these points to your client’s needs.
+
+Personalized Offer: Explain to the client what you can uniquely provide to solve their pain points.
+
+Competitive Advantage: Help the prospect client understand why they should choose you over competitors.
+
+
+#4 - Create An Exemplary Freelancing Resume or Portfolio
+
+It is your opportunity to demonstrate, rather than simply tell, the quality of your work and the worth of your experience. Showcase your job experiences, education, applicable courses, abilities, achievements, and contact information, which might include your professional social media profiles, in your freelancing CV or portfolio. This is almost certain to get the attention of a potential customer.
+
+
+#5 - Create An Outstanding Introduction Video
+
+Your freelancing introduction video may help you stand out and excel. An introductory video gives a taste of your distinct personality and what it will be like to work with you. Top clients want freelancers who are easy to talk to and enthusiastic about their work. Begin with an excellent screenplay that describes who you are, the sort of task you want to work on, and your areas of competence. 
+
+
+#6 - Showcase Your Achievements And Training Certifications
+
+Include your accomplishments and training credentials in your freelancer profile. Earning a certification validates your enthusiasm while also demonstrating your specialized experience and talents. Putting your obtained certificates on your resume might help potential employers notice your application and set you apart from your colleagues.
+
+
+
+ 
+
+
+Freelance platforms are a great way to find work, but after you register, you shouldn’t do a rush job on your profile. Your freelancing profile on a hiring platform is your storefront, business card, and public face. Clients who have never worked with you before only have your profile to guide them on whether or not they should hire you.
